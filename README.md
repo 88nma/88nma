@@ -1,14 +1,18 @@
 <div align="center">
 
-![](https://64.media.tumblr.com/ee930fa36e510f759461eb79eca97663/1a4aada150e43b0f-e7/s250x400/1f1761c92063307f99c5d74dbb9beceb6ce477da.gif) VOTE KAZUI INNO!! [vote here](https://milgram.jp/judge)
+ [なんで僕がここにいるの　間違いじゃないの?](https://open.spotify.com/track/3hMATwjnuc2ir0aA5ow964?si=YYUoaN6JSLqdMEg_AFfjHQ)
   
-  ![](https://64.media.tumblr.com/d503d36209db6ff5e0d9f05cde42d669/d4388ee98fca4f3b-c4/s400x600/11c659cace5abf9d7aa03501fc45d721270b3b5d.pnj)
+  ![](https://64.media.tumblr.com/1bf4a2d54131b72941b75e319ce0e4aa/9527e61de9d980fb-c0/s640x960/96223240ab52445195df012df9a670790bfa8e8d.pnj)
 
-$\color{blue}\text{HI I'M BAMMY}$
+$\color{blue}\text{bam  - he/him . ENTP 7w8}$
 
-$\color{blue}\text{HE/HIM FEMBOY}$
+$\color{blue}\text{multifandom - w2i if offtab ! }$
 
-$\color{blue}\text{KOREAN CANADIAN ENG/FR}$
+$\color{blue}\text{my fav milgram character is kazui btw like not joking im being srs}$
 
-[insta](https://instagram.com/y.ibam) ![](https://64.media.tumblr.com/6d3922559ed3c38a3ffe087e4dd8a27f/05389f69b2c85620-bf/s100x200/5cc833e0e3b84397dc812715bacc7b01cd2c9063.gif) [ata](https://yibam.atabook.org)
+[insta](https://instagram.com/y.ibam) [ata](https://yibam.atabook.org)
+
+![](https://64.media.tumblr.com/1c5032b0b5286f3ce637569f1169db9e/f79b2fa88b5f033d-d8/s100x200/07dcb974765a6758c077a38f31c9afd5ece1b16f.gif) ![](https://64.media.tumblr.com/c0aa794d1ff8802353a58cbfcff271ea/f79b2fa88b5f033d-84/s100x200/c6761b1aa719aa28472b4cce0121c51232908c44.gif) ![](https://64.media.tumblr.com/25e2bc99f064f6539c7b933764d56bbe/3d80be896f3a3b56-e9/s100x200/bc97a5ca896219a54e63b6e4ea411984048f8819.gif) ![](https://64.media.tumblr.com/cf60d4a808cb359df7c71bda8bf7939d/06de7a63973ce3a4-2c/s100x200/82bd0bba7a55dcd95a73f2241961686df04de609.pnj) ![](https://64.media.tumblr.com/a22987361a7eef61d83250e77e6fba28/1ca8f2696de80f42-85/s100x200/80213d20a1bdb8eecfa2ece5d278b9de4b191af6.gif) ![](https://64.media.tumblr.com/e44b4744c0935b6f5b1e3a645960a222/1ca8f2696de80f42-14/s100x200/828679d35d1c844041b6fa82c45d03fc773fa5a4.gif) ![](https://64.media.tumblr.com/6de1f42e0e5a0848371b4a7a74e89ca9/9c6aa21ca03b7a46-9e/s100x200/9092df4700a0acc79ece498d28443515a70bc0d4.pnj) ![](https://64.media.tumblr.com/c9178ac681edab35cad5903325e0007b/f5d780d09565636b-1c/s100x200/10f6abd5dd88a8ba01c2b8cee8ba249603c8ac14.pnj) ![](https://64.media.tumblr.com/ac730a9bc06ab354b07a7a75e7b98e93/937dce56bd5a209c-de/s100x200/5e47b2f68e8cc1f1160c15c45bf414d7f4ddc002.pnj) ![](https://64.media.tumblr.com/71526e0208762993202e2d2bda3b7fb5/09df8a211f7f5180-24/s100x200/b66877eafeabba08bcbe0c4ec33c1512a352d3fd.pnj) ![](https://64.media.tumblr.com/d19b3c0b021748bb8a6a07c76a1926d3/37c03d535139fca6-98/s100x200/42dd07fa5698268a3fcd0dbfc5023ffd266fda79.pnj) ![](https://64.media.tumblr.com/080847e08743e29ac76b5a36820b12aa/038091e62b344a4a-80/s100x200/f0726a87daceee979efdb136d580dbd32a2c5173.pnj) ![](https://64.media.tumblr.com/745f0031f0c05857dfe62c8271351d2a/0cd42295a57c111d-e1/s100x200/9b8cb825a7b9935eb7cbc3b449c0dfe429d4929e.pnj) ![](https://64.media.tumblr.com/2a1b5ef48103bae3693a3d4dc8b28142/a66985337d7f5916-1c/s100x200/ec2fecdb461a4ef1c5b2586dfeab800f90d2fdff.gif)
+
+
 </div>
