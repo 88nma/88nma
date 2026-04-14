@@ -4,11 +4,10 @@
   
   ![](https://64.media.tumblr.com/1bf4a2d54131b72941b75e319ce0e4aa/9527e61de9d980fb-c0/s640x960/96223240ab52445195df012df9a670790bfa8e8d.pnj)
 
-$\color{blue}\text{bam  - he/him . ENTP 7w8}$
+$\color{blue}\text{bam}$
 
-$\color{blue}\text{multifandom - w2i if offtab ! }$
+$\color{blue}\text{he/him, korean canadian, mutlifandom}$
 
-$\color{blue}\text{my fav milgram character is kazui btw like not joking im being srs}$
 
 [insta](https://instagram.com/y.ibam) [ata](https://yibam.atabook.org)
 
