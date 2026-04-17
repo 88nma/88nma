@@ -2,12 +2,13 @@
 
  [なんで僕がここにいるの　間違いじゃないの?](https://open.spotify.com/track/3hMATwjnuc2ir0aA5ow964?si=YYUoaN6JSLqdMEg_AFfjHQ)
   
-  ![](https://64.media.tumblr.com/1bf4a2d54131b72941b75e319ce0e4aa/9527e61de9d980fb-c0/s640x960/96223240ab52445195df012df9a670790bfa8e8d.pnj)
+  ![](https://64.media.tumblr.com/5af3e0bea37cc93449b50e0571f37ff6/e395a771101a3ca0-5a/s400x600/23a63dfa0219d65b7b55fa6a63998d9b6504d70e.pnj)
 
 $\color{blue}\text{bam}$
 
-$\color{blue}\text{he/him, korean canadian, mutlifandom}$
+$\color{blue}\text{he/him, korean canada}$
 
+$\color{blue}\text{big 007, 009, 001, and 005 fan}$
 
 [insta](https://instagram.com/y.ibam) [ata](https://yibam.atabook.org)
 
