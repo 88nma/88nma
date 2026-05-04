@@ -1,12 +1,13 @@
 <div align="center">
 
 
-![](https://64.media.tumblr.com/3c8207614b7b4c1cf4a16148f7c560ce/f72ed34f2fa11d08-34/s540x810/6fe932f4b66536b6c8094367c9ffc047ad8bf166.gif)
+![](https://64.media.tumblr.com/e75947fff43aeb1c29e30e09770ec9f7/a6fb5c334fe26d4e-1c/s500x750/7642ec307c089b2cec4c282f0a87a6fb8ea841ca.gif)
 
-you're the one who gave it away,<br> so why do you want it back so bad?<br> wipe it away with a kiss for me, then <br> the hands on the clock will never move again <br> spiral downward into this **BLOODY VALENTINE**
+**SPRI IS 5**<br> ♥
 
-remaking other links [prnscc](https://pronouns.cc/@reikaoru) [atabook](https://paratised.atabook.org)
+remaking rentry [prnscc](https://pronouns.cc/@raika) [atabook](https://paratised.atabook.org)
 
+i was reikaoo i was mik09to i was all the above bro yeah ik im 
 </div>
 
 
