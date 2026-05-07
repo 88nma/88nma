@@ -5,7 +5,7 @@
 
 **SPRI IS 5**<br> ♥
 
-remaking rentry [prnscc](https://pronouns.cc/@raika) [atabook](https://paratised.atabook.org)
+remaking rentry [atabook](https://paratised.atabook.org)
 
 i was reikaoo i was mik09to i was all the above bro yeah ik im 
 </div>
