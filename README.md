@@ -1,11 +1,11 @@
 <div align="center">
 
 
-![](https://64.media.tumblr.com/e75947fff43aeb1c29e30e09770ec9f7/a6fb5c334fe26d4e-1c/s500x750/7642ec307c089b2cec4c282f0a87a6fb8ea841ca.gif)
+![](https://64.media.tumblr.com/caee26462a8ad8222298208c0fbf4a38/35ccf32b3657853b-92/s400x600/b0c2376d77a438d0ace6fe06e4c91ecc4ee98e4f.gif)
 
-**SPRI IS 5**<br> ♥
+**miracles may**<br> ♥
 
-remaking rentry + prncc + everyrhung bro [atabook](https://paratised.atabook.org)
+remaking everything rlly rn [atabook](https://paratised.atabook.org)
 
 
 </div>
