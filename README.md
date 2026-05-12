@@ -5,9 +5,9 @@
 
 **SPRI IS 5**<br> ♥
 
-remaking rentry [atabook](https://paratised.atabook.org)
+remaking rentry + prncc + everyrhung bro [atabook](https://paratised.atabook.org)
 
-i was reikaoo i was mik09to i was all the above bro yeah ik im 
+
 </div>
 
 
